@@ -1,1 +1,2 @@
 # exercicio-git
+Uma vez, quando criança, eu tava no Beto Carreiro com minha familia, e aí tinha um negócio parecido com um poste que jorrava água, aí me distanciei um pouco dos meus pais e fiquei embaixo desse poste, quando eu saí, não vi mais minha familia... eu fiquei desesperado, gritando o nome da minha mãe, foi quando eu decidi virar a cabeça, eles estavam a 5m de mim, rindo de mim.
