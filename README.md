@@ -1,1 +1,2 @@
 # exercicio-git
+Em uma noitada , dentro da festa , apos tomar algumas , percebi q tinha um homem com a mesma camiseta que eu , (quem me conhece sabe q nao gosto), entao me aproximei para identificar o cara , qndo cheguei bem perto bati a cabeça em um espelho rsrs 
