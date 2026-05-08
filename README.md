@@ -1,1 +1,1 @@
-# exercicio-git
+quando eu tinha uns 10 anos eu tinha uma bicicleta de criança, e aonde eu moro e muito morro, quando eu fui descer um morro onde la na frente dava numa esquina, e quando desci acabou o freio da bike e como n tinha como eu parar eu segui reto, sorte que um carro parou na faixa na hora se não eu teria dado de frente com o carro, e com a velocidade q desci na bike subi o morro da frente.
